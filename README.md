@@ -1,1 +1,1 @@
-# 2022-2e-javurkova-atlas_slun_soustavy
+# 2022-2e-Javurkova-atlas_slun_soustavy
